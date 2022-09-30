@@ -6,7 +6,7 @@
 
 -  Drop me an email: **Dayannaocana@icloud.com**
 
-- View my CV here: https://www.figma.com/file/KjJIJycJpVOHaFdpn8QRRp/Dayanna-Ocana-CV?node-id=0%3A1/edit
+- View my CV here: https://www.figma.com/file/KjJIJycJpVOHaFdpn8QRRp/Dayanna-Ocana-CV?node-id=0%3A1
 
 <h3 align="left"> Let's connect on LinkedIn:</h3>
 <p align="left">
